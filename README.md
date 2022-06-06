@@ -1,7 +1,7 @@
 ## Hey! <3
  
-- 🌱 Cursando Ciências Da Computação (UniAmérica
-- 👩🏾‍💻 Procurando um job para aprender cada dia mais
+- 🌱 Cursando Ciências Da Computação (UniAmérica)
+- 👩🏾‍💻 Em busca de uma oportunidade para voar cada vez mais alto.
 - ✨ Ela/Dela
 
   <div align = "start">
